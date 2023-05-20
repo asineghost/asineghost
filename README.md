@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @asineghost
-- 👀 I’m interested in building bussinesses 
-- 🌱 I’m currently learning python 
+- 👀 I’m interested in growing and building my own business! 
+- 🌱 I’m currently learning python/SEO+Python
 - 💞️ I’m looking to collaborate on !!
 - 📫 How to reach me yassinebelkhiati1@gmail.com
 
